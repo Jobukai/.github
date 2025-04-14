@@ -77,4 +77,4 @@ Ser la **referencia global en aprendizaje estratégico**, productividad e innova
 ---
 
 🧠 ¿Quieres transformar tu aprendizaje y llevar tu vida al siguiente nivel?  
-👉 Únete a la **organización Jobukai**. ¡Estamos creando el futuro de la educación!
+👉 Únete a **Jobukai**. ¡Estamos creando el futuro de la educación!
